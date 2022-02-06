@@ -1,4 +1,42 @@
 # 2022年新春性癖おみくじ企画
+## 作品
+### dokuo350
+* 性癖1:眼鏡
+* 性癖2:複乳
+* 性癖3:貞操帯
+
+【予告】仮題「複乳眼鏡貞操帯」 | ぽいぞん #pixiv https://www.pixiv.net/novel/show.php?id=16930558 
+### gyurinos
+* 性癖1:シャチおむつ
+* 性癖2:淫紋
+* 性癖3:人格排泄
+
+2022年新春性癖おみくじ企画 | ぎゅりーのす #pixiv https://www.pixiv.net/artworks/95983953 
+### hydroxyquinol
+* 性癖1:天使
+* 性癖2:羞恥
+* 性癖3:服越し母乳
+
+天使の唄 | ヒドロ #pixiv https://www.pixiv.net/novel/show.php?id=16936342 
+### nonshinonome
+* 性癖1:和室
+* 性癖2:スライム排泄
+* 性癖3:肉便器
+
+双子怪人の社会科見学　人間オナホ工場編 | 東雲のん　 #pixiv https://www.pixiv.net/novel/show.php?id=16931285 
+### sukumizu17
+* 性癖1:青肌
+* 性癖2:巨玉
+* 性癖3:母乳
+
+2022年新春性癖おみくじ企画 敵国に拉致されてめっちゃ改造されて戻ってきた親友 | スク水一郎 #pixiv https://www.pixiv.net/novel/show.php?id=16930570 
+### zyasumintea008
+* 性癖1:メスケモ
+* 性癖2:イチャラブ
+* 性癖3:玉責め
+
+ウチのペットはマゾネコ（♂） | ジャスミンティー #pixiv https://www.pixiv.net/novel/show.php?id=16930340 
+
 ## 概要
 参加者が性癖を3つ持ち寄って、お互いに入れ替えて作品を作る企画です。
 イラストはもちろんテキストでも参加頂けます。
